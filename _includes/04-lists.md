@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+*Stray Kids
+*Block B
+*GOT7
+*Pentagon
