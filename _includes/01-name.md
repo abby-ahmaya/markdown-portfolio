@@ -1,6 +1,15 @@
 # SEVENTEEN
 ## S.COUPS
-### JEONGHUAN
+### JEONGHAN
 #### JOSHUA
-##### DK
+##### JUN
 ###### PRETTY U
+##### HOSHI
+#### WONWOO
+### WOOZI
+## DK
+# MINGYU
+## THE 8
+### SEUNGKWAN
+#### VERNON
+##### DINO
