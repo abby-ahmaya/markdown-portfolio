@@ -1,1 +1,6 @@
-Replace this with your name, and include a header.
+# SEVENTEEN
+## S.COUPS
+### JEONGHUAN
+#### JOSHUA
+##### DK
+###### PRETTY U
